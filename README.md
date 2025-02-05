@@ -1,4 +1,4 @@
-# Hi. I'm Erin. 👋✨
+# Hi. I'm Erin.  👋✨
 
 I'm a User Experience Designer who dabbles with code – just enough to get into trouble :sweat_smile:.
 
